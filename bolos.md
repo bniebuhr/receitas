@@ -78,17 +78,17 @@ Faça uma calda (fora do fogo) com o suco de duas laranjas misturadas com uma co
 
 ### Ingredientes:
 
-4 ovos
-1½  xícara (de chá) de açúcar (um pouco menos se o chocolate já tiver açúcar)
-½ colher (de café) de baunilha
-1 xícara (de chá) farinha trigo
-200 g de manteiga sem sal
-1 xícara (de chá) chocolate do padre garoto (ou, preferencialmente, cacau sem açúcar)
-Castanhas/nozes/etc. a gosto.
+4 ovos  
+1½  xícara (de chá) de açúcar (um pouco menos se o chocolate já tiver açúcar)  
+½ colher (de café) de baunilha  
+1 xícara (de chá) farinha trigo  
+200 g de manteiga sem sal  
+1 xícara (de chá) chocolate do padre garoto (ou, preferencialmente, cacau sem açúcar)  
+Castanhas/nozes/etc. a gosto.  
 
 ### Preparo:
 
-Bater os ovos bem, adicionar o açúcar aos poucos e a baunilha, sem parar de mexer.
+Bater os ovos bem, adicionar o açúcar aos poucos e a baunilha, sem parar de mexer.  
 Derreter a manteiga uniformemente (desligando e religando o fogo, para não dourar), misturar o chocolate em pó (cacau) até ficar homogêneo. Misturar tudo (e, junto as castanhas/nozes qubradas), colocar em uma forma untada. Levar ao forno em fogo baixo por cerca de 25 minutos, sem deixar assar muito, pra ficar úmido.
 
 
